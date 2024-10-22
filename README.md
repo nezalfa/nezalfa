@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nezalfa! I'm passionate about data science, technology, business, and empowering women in STEM.
+- 👀 I’m interested in data science, data analyst, machine learning, and business intelligence.
+- 📫 You can reach me via email at nezalfa2003@gmail.com or connect with me on LinkedIn at linkedin.com/in/nezalfa-sabrina/
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I'm also a copywriter, and I love creating content that bridges the gap between tech and creativity.
